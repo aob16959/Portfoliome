@@ -1,3 +1,0 @@
-# Portfoliome
-Portfolio
-Natdanai mansuk
